@@ -8,5 +8,6 @@ meu nome é Luis Eduardo de carvalho bento
 você pode entrar em contato comigo 
 alurastartestudante@email.com
 
-![](https://tenor.com/pt-BR/view/sacanagem-santos-mascote-peixe-belmiro-gif-11664449475682061018)
+![](https://media1.tenor.com/m/oeBy_0qFStoAAAAd/sacanagem-santos.gif)
+
 
